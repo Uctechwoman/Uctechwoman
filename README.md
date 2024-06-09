@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
+- 🔭 I’m currently working on my tech knowlegde
 - 🌱 I’m currently learning Data Analysis
 - 👯 I’m looking to collaborate on Data Analysts
 - 🤔 I’m looking for help with everything tech
