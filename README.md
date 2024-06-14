@@ -12,4 +12,4 @@
 - 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/uche-cynthia-38bb46260/)
 - 😄 Pronouns: She
 - ⚡ Fun fact: I am eager to learn and enjoy taking up new courses
-- Contact [Gmail](uchec30@gmail.com)
+- Contact [Gmail](https://mail.google.com/mail/u/0/)
